@@ -1,4 +1,3 @@
-# 7 June 2016
-## Inaugural Meeting
-## Speaker - 
-## Presentation - 
+# 2 August 2016
+## DEF CON 24 Tomorrow!!
+## No notes from this meeting :(
