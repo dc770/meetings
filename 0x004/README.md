@@ -1,4 +1,2 @@
-# 7 June 2016
-## Inaugural Meeting
-## Speaker - 
-## Presentation - 
+# 6 September 2016
+## No notes from this meeting :( 
