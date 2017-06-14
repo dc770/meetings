@@ -1,4 +1,4 @@
-# 7 June 2016
-## Inaugural Meeting
-## Speaker - 
-## Presentation - 
+# 11 July 2017 (second Tuesday due to Independence Day Holiday)
+## Pre DC25 Meeting
+## Speaker - n0logic
+## Presentation - "Knock, Knock, Knocking on your DC's Door"
